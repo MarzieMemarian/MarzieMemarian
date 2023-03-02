@@ -1,6 +1,5 @@
 ### Hi there 👋
-
-i am a desginer and graphic artist.i worked with illustrator program. i am interested in learning more photoshop and corel draw. 
+I am a desginer and graphic artist. I worked with illustrator. I am interested in learning more photoshop and corel draw. 
 
 Here are some ideas to get you started:
 
